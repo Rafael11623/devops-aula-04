@@ -2,5 +2,5 @@
 
 Meus 3 filmes favoritos:
 o preço do amanhã;
-piratas do caribe franquia;
+piratas do caribe;
 Blade runner 2048.
